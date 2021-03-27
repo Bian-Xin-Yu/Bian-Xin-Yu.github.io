@@ -1,2 +1,2 @@
-# Bian-Xin-Yu.github.io
+# bianyu.xin
 卞馨雨的博客
